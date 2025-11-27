@@ -59,4 +59,4 @@
 
 **联系我**：  
 📧 syoubin@gmail.com  
-📱 Telegram: [https://t.me/ChaincodeLabs](https://t.me/ChaincodeLabs)
+📱 Telegram: [https://t.me/victorTurbo100x](https://t.me/victorTurbo100x)
